@@ -22,7 +22,7 @@ app in the section dedicated to this CONTEST's Terms and Conditions.
 
 **CONTEST DURATION**
 
-2.1. The CONTEST takes place during the period...
+2.1. The CONTEST takes place during the period 12-25 February 2024
 
 **RIGHTS AND CONDITIONS OF PARTICIPATION IN THE CONTEST**
 
