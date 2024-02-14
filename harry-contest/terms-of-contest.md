@@ -34,7 +34,7 @@ Organizer.
 
 **CONTEST MECHANISM**
 
-4.1. Each person who, during the period ..., registers for the CONTEST
+4.1. Each person who, during the period 12-25 February 2024, registers for the CONTEST
 in-app, saves at least 5 products in the dedicated contest list, and has
 at least 3 friends in the Organizer\'s app, mesh, will automatically
 enter the Contest for the prize indicated in Chapter 5 of these Terms
